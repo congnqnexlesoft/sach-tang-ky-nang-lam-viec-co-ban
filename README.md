@@ -99,12 +99,12 @@ ___
 ___
 
 ## [![NOTES IMAGE!](/DATA/IMAGES/note-32px.png)](#) GIẢI THÍCH
-[![CONG IMAGE!](/DATA/IMAGES/CONG-avatar-2020.jpg)](#) **CÔNG**:
+[![CONG IMAGE!](/DATA/IMAGES/CONG-2022.jpeg)](#) **CÔNG**:
 > **SÁCH CƠ BẢN** để học những *Kỹ Năng Cơ Bản* như: **Giao Tiếp, Làm Việc Nhóm**.<br>
 
 <br>
 
-[![CONG IMAGE!](/DATA/IMAGES/CONG-avatar-2020.jpg)](#) **CÔNG**:
+[![CONG IMAGE!](/DATA/IMAGES/CONG-2022.jpeg)](#) **CÔNG**:
 > Để hiểu thêm, tôi sẽ so sánh với *Kỹ Năng Cao Cấp*:<br>
 > → **KỸ NĂNG CAO CẤP** là **KỸ NĂNG NGHỀ NGHIỆP** của bạn như:<br>
 > Lập Trình, Kiểm Thử và tìm lỗi, Thiết Kế, Phân Tích Hệ Thống Kinh Doanh, Quản Lý...<br>
@@ -113,19 +113,19 @@ ___
 
 <br>
 
-[![CONG IMAGE!](/DATA/IMAGES/CONG-avatar-2020.jpg)](#) **CÔNG**:
+[![CONG IMAGE!](/DATA/IMAGES/CONG-2022.jpeg)](#) **CÔNG**:
 > **Đối Tượng Là Ai?**
 > → Người mới ra trường, Người có kinh nghiệm 1-5 năm.<br>
 > (kể cả Người cảm thấy thiếu nhóm kỹ năng này).
 
 <br>
 
-[![CONG IMAGE!](/DATA/IMAGES/CONG-avatar-2020.jpg)](#) **CÔNG**:
+[![CONG IMAGE!](/DATA/IMAGES/CONG-2022.jpeg)](#) **CÔNG**:
 > Sách đã đọc 3 lần / quyển, để xác nhận là sách chất lượng tốt.<br>
 
 <br>
 
-[![CONG IMAGE!](/DATA/IMAGES/CONG-avatar-2020.jpg)](#) **CÔNG**:
+[![CONG IMAGE!](/DATA/IMAGES/CONG-2022.jpeg)](#) **CÔNG**:
 > Nếu bạn thấy **có gì sai**, vui lòng thông báo tôi qua email: congnq@nexlesoft.com.
 
 <br>
